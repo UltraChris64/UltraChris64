@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @UltraChris64
+- 👀 I’m interested in Wheel of Fortune on the Nintendo Entertainment System.
+- 🌱 I’m currently learning more about Wheel of Fortune on the Nintendo Entertainment System.
+- 💞️ I’m looking to collaborate on repositories relating to Wheel of Fortune on the Nintendo Entertainment System.
+- 📫 How to reach me: Talk about Wheel of Fortune on the Nintendo Entertainment System, and I will arrive.
